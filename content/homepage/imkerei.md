@@ -22,10 +22,10 @@ Honig ernten wir von unseren Bienenvölkern natürlich auch. Während der Tracht
 
 ![Eine volle und verdeckelte Honigwabe.](../images/honigwabe.webp)
 
-Im Herbst und Winter verarbeiten wir den kristallisierten Honig schonend. Ohne die Qualität zu beeinflussen wird er wieder "aufgetaut". Danach wird er so lange gerührt, bis er die gewünschte Konsistenz erreicht hat. Wenn er diese erreicht hat, füllen wir ihn Gläser ab.
+Im Herbst und Winter bereiten wir den Honig für die Abfüllung in Gläser vor. Ohne die Qualität zu beeinflussen wird eventuell kristallisierter Honig wieder aufgetaut. Danach wird er so lange gerührt, bis er die gewünschte Konsistenz besitzt. Wenn er diese erreicht hat, füllen wir ihn Gläser ab.
 
 ![Auf einem Tisch stehen zwei Honiggläser.](../images/honigglaeser.webp)
 
-Jeder Mensch hat eine unterschiedliche Vorstellung davon, was optimaler Honig bedeutet. Die Konsistenz von Honig reicht von flüssig über cremig oder feinkristallin bis hin zu fester Konsistenz mit großen Zuckerkristallen. Der Geschmack deckt ebenfalls ein großes Spektrum ab: feine Süße bis hin zu kräftig oder fruchtig. Verantwortlich für diese Unterschiede sind der Anteile der unterschiedlichen Zuckerarten im Honig und von welchen Pflanzen die Bienen gesammelt haben.
+Jeder Mensch hat eine unterschiedliche Vorstellung davon, was optimaler Honig bedeutet. Die Konsistenz von Honig reicht von flüssig über cremig oder feinkristallin bis hin zu fester Konsistenz mit großen Zuckerkristallen. Der Geschmack deckt ebenfalls ein großes Spektrum ab: feine Süße bis hin zu kräftig oder fruchtig. Verantwortlich für diese Unterschiede sind der Anteile der unterschiedlichen Zuckerarten im Honig, von welchen Pflanzen die Bienen gesammelt haben und wie wir als Imker den Kristallisationsprozess beeinflussen.
 
-Meist haben wir mehr Honig als wir selbst verbrauchen. Von diesem Anteil verkaufen wir natürlich auch gern Honig. Welche Honige wir gerade verkaufen hängt stark von der aktuellen Jahreszeit und unseren Vorräten ab. Sendet uns einfach eine Nachricht mit euren Fragen - oder kommt besser direkt mal bei uns vorbei. Die Kontaktmöglichkeiten findet ihr weiter unten auf dieser Seite.
+Meist haben wir mehr Honig als wir selbst verbrauchen. Von diesem Anteil verkaufen wir natürlich auch gern Honig. Welche Honige wir gerade verkaufen hängt stark von der aktuellen Jahreszeit und den Vorräten ab. Sendet uns einfach eine kurze Nachricht mit einer Anfrag - oder kommt besser direkt mal bei uns vorbei. Die Kontaktmöglichkeiten findet ihr weiter unten auf dieser Seite.
